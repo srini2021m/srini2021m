@@ -1,12 +1,12 @@
 ˚₊ hi there ~  
-welcome to my github page ☆
-
-⋆.˚☾⭒.˚⋆˚　　　　✦　　　.　　. 　 ˚　.　　　　　 . ✦　　　 　˚　　　　 . ★⋆.
-
+welcome to my github page ☆  
+  
+⋆.˚☾⭒.˚⋆˚　　　　✦　　　.　　. 　 ˚　.　　　　　 . ✦　　　 　˚　　　　 . ★⋆.  
+  
 ୨୧ about me ୨୧  
-✧ recently graduated with a double major in computer science + psychology 
-✧ i’m drawn to interactive systems, human-centered research and impact-focused works 
-✧ currently exploring: how to transition into a post-grad life
+✧ recently graduated with a double major in computer science + psychology  
+✧ i’m drawn to interactive systems, human-centered research and impact-focused works  
+✧ currently exploring: how to transition into a post-grad life  
 
 <!--⋆.˚ ☁︎⋆.˚₊‧──────‧₊˚⋆☽˚｡⋆
 
