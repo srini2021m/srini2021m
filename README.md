@@ -4,9 +4,9 @@ welcome to my github page ☆
 ⋆.˚☾⭒.˚⋆˚　　　　✦　　　.　　. 　 ˚　.　　　　　 . ✦　　　 　˚　　　　 . ★⋆.  
   
 ୨୧ about me ୨୧  
-✧ recently graduated with a double major in computer science + psychology  
+✧ recently graduated from Mount Holyoke with a double major in computer science + psychology  
 ✧ i’m drawn to interactive systems, human-centered research and impact-focused works  
-✧ currently exploring: how to transition into a post-grad life  
+✧ currently exploring: jobs in the tech industry
 
 <!--⋆.˚ ☁︎⋆.˚₊‧──────‧₊˚⋆☽˚｡⋆
 
