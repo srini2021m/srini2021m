@@ -30,7 +30,7 @@ welcome to my github page ☆
 -->
 
 ୨୧  where to find me ୨୧   
-✧ personal site: [srini2021m.github.io](https://srini2021m.github.io) {site still in progress!}
+✧ personal site: [srini2021m.github.io](https://srini2021m.github.io) {site still in progress!}  
 ✧ email: [srini22m@mtholyoke.edu.com](mailto:srini22m@mtholyoke.edu.com)  
 
 ⋆.˚☾⭒.˚⋆˚　　　　✦　　　.　　. 　 ˚　.　　　　　 . ✦　　　 　˚　　　　 . ★⋆.
