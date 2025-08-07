@@ -8,7 +8,7 @@ welcome to my github page ☆
 ✧ i’m drawn to interactive systems, human-centered research and impact-focused works  
 ✧ currently exploring: jobs in the tech industry! looking to dive into a range of roles from recruiting to analytics  
 ✧ most interested in: people and hr within a tech-focused workplace - opportunities to combine the people-centered strategies I've learned from psychology with my technical computer science experience  
-✧ also interested in: policy making for AI use in community contexts
+✧ also interested in: policy making for AI use in community contexts  
 ✧ interests: books (currently reading yellowface by rf kuang) and tv shows (my current favorite is the pitt)
 
 <!--⋆.˚ ☁︎⋆.˚₊‧──────‧₊˚⋆☽˚｡⋆
